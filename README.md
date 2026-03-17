@@ -1,4 +1,4 @@
-# MOSQ – Moonlight Daydream
+# MOSQ – Moonlight Daydream（feat. jen、Neptune）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
